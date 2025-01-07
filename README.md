@@ -1,7 +1,7 @@
 ### IT ENGIENER + .NET DEVELOPER +  ASPIRING TO BE POLIGOT :heart_eyes:
 I am a mexican  :computer:, now days  I am working as a  .net developer in the Financial Area.
 :notebook_with_decorative_cover:  :pencil2:Apassionated for  learning foreing languajes, and  autodidact.
-I have been working for  VALORA IT SOFTWARE SERVICES    for almost 4 years.
+I have been working for  VALORA IT SOFTWARE SERVICES    for more than 5 years.
 
 
 Curses that I have taked:
